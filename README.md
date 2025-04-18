@@ -16,7 +16,7 @@
 - 📧 Email :shilpa96kappattanavar@gmail.com ...
 - 😄 Pronouns: Shilpa
 - ⚡ Fun fact: ## 😄 Fun Fact
-   I love solving tech puzzles and making things work—even if it means Googling 50 times a day!
+   I love solving tech puzzles and making things work—even if it means Googling 50 times a day!   
 
 
 <!---
